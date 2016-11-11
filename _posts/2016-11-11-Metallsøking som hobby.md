@@ -17,12 +17,12 @@ du har en søker til noen tusenlapper så skal det holde plenty, bortsett fra hv
 Ett godt signal, følger 90 graders X regelen som ca, og jeg vet at det er ett godt signal, greve opp, nikkel mynt -> rett i søppla!! Jeg kan iallefall ha god samvittighet at jeg plukker opp sjiten fra 
 våres moder jord sånn at gresset kan kose seg mer. 
 
-- Nikkelmynter -> Trash 
-- Patronhylser -> Trash 
-- Spiker -> Trash 
-- Sølvpapir -> Trash 
+- Nikkelmynter -> Søppel 
+- Patronhylser -> Søppel
+- Spiker -> Søppel 
+- Sølvpapir -> Søppeø 
 - Egentlig alt som er nyere enn 1950 går i søppla (sorry) 
-- Alt som er eldre enn 1950 med fortsatt ikke noe nevneverdig går i en slags glemmepose 
+- Alt som er eldre enn 1950 med fortsatt ikke noe nevneverdig går i glemmepåsan 
 - Alt av norske sølvmynter og utenlandsk valutta er mere intressant 
 
 Jeg vet nesten ikke noe om historie, men når jeg finner noe som er gammelt så kan jeg bare føle energien og det er helt rått. Helt ubeskrivelig! 
