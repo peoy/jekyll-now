@@ -3,7 +3,9 @@ layout: post
 tittle: Metallsøking  
 ---
 Du står å ser mot solnedgangen og har en indre fred som ingen andre har funnet, akkurat nå, i dette sekundet. Timene går alt for fort, og du irriterer deg grønn over hvor mye søppel folk kaster ifra seg og hvordan 
-de i det hele tatt har samvittighet til å kaste store ølbokser, sjokoladepapir, engangsgriller og annet moderne avfall. Heldigvis, så er du her å plukker opp all sjiten. Og hvis du ser dette fra naturen
+de i det hele tatt har samvittighet til å kaste store ølbokser, sjokoladepapir, engangsgriller og annet moderne avfall. 
+
+Heldigvis, så er du her å plukker opp all sjiten. Og hvis du ser dette fra naturen
 sin side så er kobber/sølv/nikkel/ all slags mynter også sett på som avfall, alt søkeren reagerer på er avfall. Helt til du plukker det opp å legger det i din egen lomme. Så hvis du er på ett fredet 
 område å søker og blir fersket så kan du bare si at du gjorde det for naturens beste, neida, ikke søk på fredet område - det er ikke akseptabelt på noen måter(bare litt). 
 
