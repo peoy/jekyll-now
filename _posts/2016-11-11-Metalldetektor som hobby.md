@@ -41,4 +41,4 @@ Jeg vet nesten ikke noe om historie, men når jeg finner noe som er gammelt så 
 
 
 
-(SIDEN KOMMER TIL Å BLI OPPDATERT MED TIDEN) 
+(SIDEN KOMMER TIL Å BLI OPPDATERT) 
