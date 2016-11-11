@@ -38,3 +38,7 @@ Jeg vet nesten ikke noe om historie, men når jeg finner noe som er gammelt så 
 	*Ikke kall metallsøking for skattejakt, det gir ett dårlig bilde av hobbyen våres 
 	*Vær høfflig med folk som kommer med "Nå, finn du nokka gull?", de er jo bare nyserrige av en god grunn :-) 
    
+
+
+
+(SIDEN KOMMER TIL Å BLI OPPDATERT MED TIDEN) 
