@@ -17,27 +17,27 @@ du har en søker til noen tusenlapper så skal det holde plenty, bortsett fra hv
 Ett godt signal, følger 90 graders X regelen som ca, og jeg vet at det er ett godt signal, greve opp, nikkel mynt -> rett i søppla!! Jeg kan iallefall ha god samvittighet at jeg plukker opp sjiten fra 
 våres moder jord sånn at gresset kan kose seg mer. 
 
--Nikkelmynter -> Trash 
--Patronhylser -> Trash 
--Spiker -> Trash 
--Sølvpapir -> Trash 
--Egentlig alt som er nyere enn 1950 går i søppla (sorry) 
--Alt som er eldre enn 1950 med fortsatt ikke noe nevneverdig går i en slags glemmepose 
--Alt av norske sølvmynter og utenlandsk valutta er mere intressant 
+- Nikkelmynter -> Trash 
+- Patronhylser -> Trash 
+- Spiker -> Trash 
+- Sølvpapir -> Trash 
+- Egentlig alt som er nyere enn 1950 går i søppla (sorry) 
+- Alt som er eldre enn 1950 med fortsatt ikke noe nevneverdig går i en slags glemmepose 
+- Alt av norske sølvmynter og utenlandsk valutta er mere intressant 
 
 Jeg vet nesten ikke noe om historie, men når jeg finner noe som er gammelt så kan jeg bare føle energien og det er helt rått. Helt ubeskrivelig! 
 
 
 ## Er du nybegynner, huskeliste 
 
--Kulturminneloven
--Plukk med deg alt
--Tett igjen pluggene dine, så ikke vi andre skjemmes av din sløvhet ovenfor hobbyen våres.
--Meld deg inn i en metallsøkerklubb, NNMSK er jo ett eksempel. 
--Spør alltid om lov forde om det er kommunal/privat eiendom 
--Av å til litt på fredet område, neida, hold deg unna fredet område, og er du usikker på om området er fredet, så ikke søk. 
--Ikke kall metallsøking for skattejakt, det gir ett dårlig bilde av hobbyen våres 
--Vær høfflig med folk som kommer med "Nå, finn du nokka gull?", de er jo bare nyserrige av en god grunn :-) 
+- Kulturminneloven
+- Plukk med deg alt
+- Tett igjen pluggene dine, så ikke vi andre skjemmes av din sløvhet ovenfor hobbyen våres.
+- Meld deg inn i en metallsøkerklubb, NNMSK er jo ett eksempel. 
+- Spør alltid om lov forde om det er kommunal/privat eiendom 
+- Av å til litt på fredet område, neida, hold deg unna fredet område, og er du usikker på om området er fredet, så ikke søk. 
+- Ikke kall metallsøking for skattejakt, det gir ett dårlig bilde av hobbyen våres 
+- Vær høfflig med folk som kommer med "Nå, finn du nokka gull?", de er jo bare nyserrige av en god grunn :-) 
    
 
 
