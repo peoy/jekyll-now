@@ -20,7 +20,7 @@ våres moder jord sånn at gresset kan kose seg mer.
 - Nikkelmynter -> Søppel 
 - Patronhylser -> Søppel
 - Spiker -> Søppel 
-- Sølvpapir -> Søppeø 
+- Sølvpapir -> Søppel 
 - Egentlig alt som er nyere enn 1950 går i søppla (sorry) 
 - Alt som er eldre enn 1950 med fortsatt ikke noe nevneverdig går i glemmepåsan 
 - Alt av norske sølvmynter og utenlandsk valutta er mere intressant 
